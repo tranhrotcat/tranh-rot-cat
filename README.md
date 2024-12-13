@@ -4,7 +4,7 @@
 
 [**Tranh rót cát**](https://www.tranhrotcat.com/)  và tranh thả tim là những phụ kiện decor đám cưới đang rất được ưa chuộng tại TpHCM. Với nghi thức rót cát tượng trưng cho sự hòa quyện của hai trái tim, tranh ký tên thả tim lưu giữ tình cảm của khách mời khi đến dự tiệc cưới, đây là những món đồ decor đầy cảm xúc và tạo nên sự khác biệt cho lễ cưới của bạn.
 
-![banner-tranh-rot-cat](https://github.com/user-attachments/assets/f45db6ce-6733-4adf-84f4-9f32a95429f7)
+![banner-tranh-rot-cat](https://github.com/tranhrotcat/tranh-rot-cat/blob/main/banner-tranh-rot-cat.jpg)
 
 [**Kim Hỷ Wedding**](https://github.com/tranhrotcat/tranh-rot-cat) - thương hiệu decor cưới uy tín với 5 năm hoạt động (từ 2019) - mang đến những sản phẩm tranh rót cát và tranh thả tim với giá rẻ ngay tại xưởng sản xuất. Là một đơn vị hàng đầu tại TPHCM, Kim Hỷ Wedding đã phục vụ hàng trăm khách hàng, khẳng định uy tín và chất lượng trong ngành. Bên cạnh việc trực tiếp sản xuất, giá cả phải chăng tại xưởng giúp Kim Hỷ Wedding luôn có mức giá cạnh tranh và nhiều ưu đãi hấp dẫn cho các cặp đôi.
 
